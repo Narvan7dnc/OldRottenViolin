@@ -1,16 +1,13 @@
-## Hi there 👋
+hii! this is me 
 
-<!--
-**OldRottenViolin/OldRottenViolin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+please be free to int/w2i and even c+h! even if i was in busy mode  (unless i'm in away mode)
 
-Here are some ideas to get you started:
+sign atabook! 
+https://narvanahah.atabook.org/
+sorry if i replied late..! -
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+@narvan_dnc is also me!
+
++ Btw, the github accounts is only made for the readme and bio, and all of you guys are connecting to it bc of ponytown!  (sorry English isn't my first language)
+
+thx for reading =]
